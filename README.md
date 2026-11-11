@@ -11,7 +11,7 @@ ${\color{#047432}Often}$ ${\color{#528d45}with}$ ${\color{#619467}friends}$.
 <br><img src="https://64.media.tumblr.com/f3ec87f2eac829869792f4ac4a3d1f21/d493dd7a74baddf0-1d/s2048x3072/047b788f789fbeab99f382e8f0b85c82093928f5.pnj" width=470px />
 <br>
                  ${\color{#1f541a}BAMF-LINKS}$ ${\color{#95b583}.ᐟ}$
-<br>˗ˏˋ <a href="https://rentry.co/wipd">ArtFight</a>${\color{#6d8e60}╏}$<a href="https://rentry.co/wipd">Rentry</a> ${\color{#649344}╏}$ <a href="https://uncannybelle.straw.page">Strawpage</a> ${\color{#1e531d}╏}$ <a href="https://rentry.co/wipd">Patreon</a> ${\color{#699f6c}╏}$ <a href="https://loveletters.atabook.org/">Atabook</a> ˎˊ˗
+<br>˗ˏˋ <a href="https://github.com/Lovelettr">Main</a>${\color{#6d8e60}╏}$<a href="https://rentry.co/wipd">Rentry</a> ${\color{#649344}╏}$ <a href="https://uncannybelle.straw.page">Strawpage</a> ${\color{#1e531d}╏}$ <a href="https://www.patreon.com/c/u84422389/about">Patreon</a> ${\color{#699f6c}╏}$ <a href="https://loveletters.atabook.org/">Atabook</a> ˎˊ˗
 <br><img src="https://64.media.tumblr.com/7ad70ebda6e2749b0d059c910a45ac5e/434f0d39e3ad3af8-14/s540x810/a0358c8f82884aa2440b8cf85d1b94c03726051c.gifv" width=470px />
 <br> 
                  ${\color{#557231}I}$ ${\color{#69a270}CAN}$ ${\color{#055c01}MAKE}$ ${\color{#005900}YOU}$ ${\color{#4f8754}FEEL}$ ${\color{#67a267}ALL}$ ${\color{#508c43}RIGHT}$ .ᐟ
