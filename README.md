@@ -7,7 +7,7 @@ ${\color{#6a9e71}YOU'RE}$ ${\color{#5f8f40}NOT}$ ${\color{#005900}CUT}$ ${\color
 <br>${\color{#639d6d} Sharkie}$ ${\color{#005a01}/}$ ${\color{#94d18a}Navi}$ ${\color{#4f8b42}╏}$ ${\color{#2a5626}She}$ ${\color{#496727}/}$ ${\color{#508d4d}Her}$ ${\color{#5f9862}╏}$ ${\color{#1f541a}Adult}$.
 <br>${\color{#3c6e4f}British}$ ${\color{#166810}+}$ ${\color{#93d08a}Irish}$ ${\color{#3f702c}╏}$ ${\color{#6d9f71}lurker}$ ${\color{#518d44}often}$ ${\color{#70a074}at}$ ${\color{#005900}docks / spawn}$.
 ${\color{#047432}Often}$ ${\color{#528d45}with}$ ${\color{#619467}friends}$.
-<br>${\color{#96d18b}Feel}$ ${\color{#1f541a}free}$ ${\color{#87bd81}to}$ ${\color{#639765}C+H}$. ${\color{#4e8a41}I'm}$ ${\color{#6ea676}offtab}$, ${\color{#337929}most}$ ${\color{#2a5a23}of}$ ${\color{#005900}the}$ ${\color{#518d44}time}$. ${\color{#045c00}♯Rivals}$
+<br>${\color{#96d18b}Feel}$ ${\color{#1f541a}free}$ ${\color{#87bd81}to}$ ${\color{#639765}C+H}$. ${\color{#4e8a41}I'm}$ ${\color{#6ea676}offtab}$, ${\color{#337929}most}$ ${\color{#2a5a23}of}$ ${\color{#005900}the}$ ${\color{#518d44}time}$. ${\color{#045c00}Married}$ ${\color{#005900}irl}$
 <br><img src="https://64.media.tumblr.com/f3ec87f2eac829869792f4ac4a3d1f21/d493dd7a74baddf0-1d/s2048x3072/047b788f789fbeab99f382e8f0b85c82093928f5.pnj" width=470px />
 <br>
                  ${\color{#1f541a}BAMF-LINKS}$ ${\color{#95b583}.ᐟ}$
